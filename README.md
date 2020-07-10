@@ -7,3 +7,4 @@
 - Ce soir PAS DE RAID !!! 
 
 - Bonne journée et bon jeu
+- merci
